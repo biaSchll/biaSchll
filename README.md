@@ -1,0 +1,5 @@
+- 👋 olá, me chamo @biaSchll.
+- 👀 atualmenteme me interesso em programação.
+- 🌱 estou a aprender a programar.
+- 💞️ aprender, ajudar, ensinar.
+- 📫 meu e-mail de contato é Bianca.schllemer@escola.pr.gov.br
